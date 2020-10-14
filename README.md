@@ -1,0 +1,1 @@
+The recipe is to create a red velvet cake is indeed a very mild chocolate flavor since it possesses very little cocoa powder. The main flavor note actually comes from the cream cheese frosting. You’re getting bites of fluffy moist cake with a very creamy delicate frosting giving a really wonderful mouthfeel.
